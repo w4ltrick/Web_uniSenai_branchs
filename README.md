@@ -1,1 +1,1 @@
-Site do Waltin sobre jojo, aprecie.
+Em conjunto somos melhores
